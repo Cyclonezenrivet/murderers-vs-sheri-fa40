@@ -1,4 +1,4 @@
-
+murderers vs sheriffs 2 Script updated is the best murderers vs sheriffs 2 Script, featuring auto-heal and anti-ban. Safe and powerful for all your
 
 
 
